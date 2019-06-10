@@ -4,7 +4,7 @@
 
 I have chosen to adapt a children's story.  The author is Toon Telligan, a Dutch writer who was most popular in the 1960s.  The story I am adapting is Squirrel's birthday.  It is one of my daughter's favorite stories. All of the characters use him/his/he pronouns.
 
-# The spoonbill's birthday (coverpage.jpg)
+# The spoonbill's birthday ![coverpage.jpg]
 
 Toon Telligan has four children's books that are made of collections of short stories. The stories are whimsical and usually feature a squirrel and an elephant.  The stories often have philosophical lessons and all the characters in the stories use him/his/he pronouns.  In five-year-old speak " They are ALL boys! That's not fair!" The majority of children's books feature a male protagonist.  Usually if there are more than three or four characters one of the lesser characters is female, however, that isn't the case in this series. Therefore I've chosen to remaster it with equal representation of hers and his.
 
