@@ -41,3 +41,10 @@ I argue that women and girls would be more complete versions of themselves if te
 # Reflection 
 
 I intend to work on furthering this project into a journal article.  I will take this adaptation as an example of how much impact can be made with so little change. How the integrity of the work remains while including women and girls as participants in society through this story.
+
+# Work Cited
+Sex-Role Socialization in Picture Books for Preschool Children
+Lenore J. Weitzman, Deborah Eifler, Elizabeth Hokada, and Catherine Ross
+American Journal of Sociology 1972 77:6, 1125-1150 
+
+https://search.proquest.com/docview/1835329714/fulltextPDF/F9B44D2AB3E1469APQ/1?accountid=28598 Thomas, Ebony E. "Stories Still Matter: Rethinking the Role of Diverse Children's Literature Today." Language Arts, vol. 94, no. 2, 2016, pp. 112-119. ProQuest, 
