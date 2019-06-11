@@ -18,7 +18,8 @@ This story was written in 1995.  By Toon Telligan a General Practitioner of Medi
 ![final page](finalpage.jpg)
 
 # [The Adaptation ]
-![page2]
+![page2](page2-adapted.jpg)
+![finalpage](finalpage-adapted.jpg)
 
 I've chosen to adapt one of Toon Telligans more popular works.  The squirrel's birthday, from the above series.  I choose this work because its one of my daughter's favorites stories and it is a fun story to read aloud.  It's silly and unexpected..so often children's books avoid "bad" behavior.  As though mentioning it encourages it.  The squirrels birthday is unique in that bad behavior is at the center of the story. It is different from Toon Telligans other works in that there is a large cast of characters.  Toon Telligans stories often feature 2 or 3 characters. 
 
